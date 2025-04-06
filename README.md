@@ -4,4 +4,5 @@ A little repo for workshop participants to practice forks and pull requests.
 
 April 6 - 7, 2025
 
-Tested by Elizabeth Phillips, and I think it's working...
+
+Brandyn and Finley Lucca AND BETH!!! was here [6 April 2025]
